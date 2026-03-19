@@ -1,7 +1,7 @@
 <h1 align="center">Books Notes</h1>
 
 - Sex Education
-  1. [Come As You Are - Emily Nagoski](./come-as-you-are(emily-nagoski))
+  1. [Come As You Are - Emily Nagoski](./sex-education/come-as-you-are(emily-nagoski))
   2. She Comes First — Ian Kerner
   3. Becoming Cliterate — Laurie Mintz
   4. The Guide to Getting It On — Paul Joannides

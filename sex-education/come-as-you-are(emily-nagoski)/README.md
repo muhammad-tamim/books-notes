@@ -5,7 +5,9 @@
   <img src="./assets/images/emily-nagoski.jpg" width="200" height="300" />
 </div>
 
-- [Part 1: The Basic](#part-1-the-basic)
+- [Introduction: Yes, You Are Normal](#introduction-yes-you-are-normal)
+  - [The True Story of Sex:](#the-true-story-of-sex)
+- [Part 1: The (Not-So-Basic) Basics](#part-1-the-not-so-basic-basics)
   - [Anatomy](#anatomy)
     - [The Beginning:](#the-beginning)
     - [The Clit, The Whole Clit, and Nothing but the Clit:](#the-clit-the-whole-clit-and-nothing-but-the-clit)
@@ -112,8 +114,29 @@
     - [To feel normal](#to-feel-normal)
     - [this is it](#this-is-it)
 
+# Introduction: Yes, You Are Normal 
 
-# Part 1: The Basic
+## The True Story of Sex:
+
+**Unknown Words:**
+- reliably = 
+- breast stimulation = 
+- toe socking = 
+- spontaneous = 
+- emerges = 
+- erotic =
+
+**Good to Know:**
+- spontaneous sexual desire = 
+- Responsive sexual desire = 
+
+
+- It was just sort of assumed that men have orgasms during penis-in-vagina sex (Intercourse), women should have orgasms with intercourse too. In reality, About **30 percent** of women orgasm reliably with intercourse. The **others 70** percent sometimes, rarely, or never orgasm with intercourse, and they're all healthy and normal. A woman might orgasm lots of others ways (e,g,. oral sex, vibrators, breast stimulation, toe socking) pretty much any way you can imagine. That's normal.
+
+- It was also assumed that because men experience spontaneous, out-of-the-blue desire for sex, women should also want sex spontaneously. A woman can be perfectly normal and healthy and never experience spontaneous sexual desire. Instead, she may experience “responsive” desire, in which her desire emerges only in a highly erotic context.
+
+
+# Part 1: The (Not-So-Basic) Basics
 
 ## Anatomy
 ### The Beginning:
