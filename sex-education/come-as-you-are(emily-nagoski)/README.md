@@ -135,11 +135,15 @@
 
 - It was also assumed that because men experience spontaneous, out-of-the-blue desire for sex, women should also want sex spontaneously. A woman can be perfectly normal and healthy and never experience spontaneous sexual desire. Instead, she may experience “responsive” desire, in which her desire emerges only in a highly erotic context.
 
-
 # Part 1: The (Not-So-Basic) Basics
 
 ## Anatomy
+
 ### The Beginning:
+![alt text](./assets/images/part-1-the-basic/human-reproductive-system-in-different-stages.png)
+
+Look at the image, all the same parts, just organized in different ways. Every body's genitals are the same until six weeks.
+
 ### The Clit, The Whole Clit, and Nothing but the Clit:
 ### Meet Your Clitoris: 
 ### Lips, Both Great and Small:
