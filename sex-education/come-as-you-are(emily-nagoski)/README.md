@@ -11,8 +11,6 @@
   - [Anatomy](#anatomy)
     - [The Beginning:](#the-beginning)
     - [The Clit, The Whole Clit, and Nothing but the Clit:](#the-clit-the-whole-clit-and-nothing-but-the-clit)
-    - [Meet Your Clitoris:](#meet-your-clitoris)
-    - [Lips, Both Great and Small:](#lips-both-great-and-small)
     - [Hymen Truths:](#hymen-truths)
     - [A Word on Words:](#a-word-on-words)
     - [The Sticky Bits:](#the-sticky-bits)
@@ -140,13 +138,34 @@
 ## Anatomy
 
 ### The Beginning:
+![alt text](./assets/images/part-1-the-basic/anatomy/humanreproductionprocess.webp)
+![alt text](./assets/images/part-1-the-basic/anatomy/Internal%20and%20external%20organs%20of%20the%20female%20reproductive%20system..jpg)
+
+Clink the image to watch the video:
+[![Watch the video](./assets/images/part-1-the-basic/anatomy/thumbnail.jpg)](https://www.youtube.com/watch?v=SJSbLkZbfps&t=16s)
+
+
+![alt text](image.png)
+![alt text](image-1.png)
+![alt text](image-2.png)
+![alt text](image-3.png)
+![alt text](image-4.png)
+![alt text](image-5.png)
+![alt text](./assets/images/part-1-the-basic/anatomy/different-types-of-penis.png)
+![alt text](./assets/images/part-1-the-basic/anatomy/different-types-of-vulva.jpg)
+
 ![alt text](./assets/images/part-1-the-basic/human-reproductive-system-in-different-stages.png)
 
 Look at the image, all the same parts, just organized in different ways. Every body's genitals are the same until six weeks.
 
 ### The Clit, The Whole Clit, and Nothing but the Clit:
-### Meet Your Clitoris: 
-### Lips, Both Great and Small:
+![alt text](./assets/images/part-1-the-basic/anatomy/clitoris.png)
+![alt text](./assets/images/part-1-the-basic/anatomy/clitoris2.png)
+![alt text](./assets/images/part-1-the-basic/anatomy/clitoris3.jpg)
+
+- The clitoris is the primary and most sensitive organ responsible for sexual pleasure in female anatomy. 
+- Unlike the penis, which has multiple functions (sensation, penetration, ejaculation, urination), the clitoris is specialized purely for sensation.
+
 ### Hymen Truths:
 ### A Word on Words:
 ### The Sticky Bits:
