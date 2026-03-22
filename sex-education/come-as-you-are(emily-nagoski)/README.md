@@ -145,12 +145,12 @@ Clink the image to watch the video:
 [![Watch the video](./assets/images/part-1-the-basic/anatomy/thumbnail.jpg)](https://www.youtube.com/watch?v=SJSbLkZbfps&t=16s)
 
 
-![alt text](image.png)
-![alt text](image-1.png)
-![alt text](image-2.png)
-![alt text](image-3.png)
-![alt text](image-4.png)
-![alt text](image-5.png)
+![alt text](./assets/images/part-1-the-basic/anatomy/image.png)
+![alt text](./assets/images/part-1-the-basic/anatomy/image-1.png)
+![alt text](./assets/images/part-1-the-basic/anatomy/image-2.png)
+![alt text](./assets/images/part-1-the-basic/anatomy/image-3.png)
+![alt text](./assets/images/part-1-the-basic/anatomy/image-4.png)
+![alt text](./assets/images/part-1-the-basic/anatomy/image-5.png)
 ![alt text](./assets/images/part-1-the-basic/anatomy/different-types-of-penis.png)
 ![alt text](./assets/images/part-1-the-basic/anatomy/different-types-of-vulva.jpg)
 
